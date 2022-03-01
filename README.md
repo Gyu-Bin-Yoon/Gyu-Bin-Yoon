@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+❕I'm a student who want to be a digital forensics expert in cyber bureau❕
+
+
+
+
+
 <!--
 **Gyu-Bin-Yoon/Gyu-Bin-Yoon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
