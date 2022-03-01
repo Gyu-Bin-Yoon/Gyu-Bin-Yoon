@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-💜 I'm a student who want to be a digital forensics expert in cyber bureau 💜
+⭐️ I'm a student who want to be a digital forensics expert in cyber bureau ⭐️
 
 
 
